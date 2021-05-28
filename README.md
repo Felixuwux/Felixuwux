@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Felixuwux
-- 👀 I’m interested in code xddddd
+- 👀 I’m interested in code 
 - 🌱 I’m currently learning program 
 - 💞️ I’m looking to collaborate on a big projects
 - 📫 How to reach me 
